@@ -1,1 +1,1 @@
-Hard first day
+hard end of the day
